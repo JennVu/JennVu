@@ -1,3 +1,4 @@
+![Cover](assess/AVa.jpg)
 ### Hi, Call me Jenn
 #### I'd like to craft captivating marketing strategies, seducing success with data-driven allure
 
